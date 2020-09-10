@@ -5,4 +5,8 @@ leo is a shizi
 hui dao zhiding banben
 djud
 wo xianng zi ji you nengli 
-today my hair zhen xiang hhhhh
+today my toufa  zhen xiang hhhhh
+jintian chile guodong 
+ranhou hele maidong 
+renbuzhu duini xindong 
+
